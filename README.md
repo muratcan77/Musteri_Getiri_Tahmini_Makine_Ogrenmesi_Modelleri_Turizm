@@ -1,0 +1,1 @@
+# Musteri_Getiri_Tahmini_Makine_Ogrenmesi_Modelleri_Turizm
